@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-please to not expect nothing to crazy on this side since I just started it :-) 
+please do not expect nothing too crazy on this side since I just started it :-) 
 
 About me: 
 Data-driven problem solver with relevant working experience in several industries, areas and roles. 
